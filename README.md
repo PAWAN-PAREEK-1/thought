@@ -1,1 +1,1 @@
-# thought
+Human beings can alter their lives by altering their attitudes of mind. | **by William James**
