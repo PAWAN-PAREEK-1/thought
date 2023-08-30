@@ -1,1 +1,1 @@
-Human beings can alter their lives by altering their attitudes of mind. | **by William James**
+What you get by achieving your goals is not as important as what you become by achieving your goals. | **by Henry David Thoreau**
