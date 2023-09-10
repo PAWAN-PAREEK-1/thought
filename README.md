@@ -1,1 +1,1 @@
-Create each day anew. | **by Morihei Ueshiba**
+I love fools' experiments. I am always making them. | **by Charles Darwin**
