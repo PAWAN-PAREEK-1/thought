@@ -1,1 +1,1 @@
-The content of your character is your choice. Day by day, what you choose, what you think and what you do is who you become. | **by Heraclitus**
+Creative people are often found either disagreeable or intimidating by mediocrities. | **by Criss Jami**
