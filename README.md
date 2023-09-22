@@ -1,1 +1,1 @@
-Creative people are often found either disagreeable or intimidating by mediocrities. | **by Criss Jami**
+If you change the way you look at things, the things you look at change.  | **by Wayne Dyer**
