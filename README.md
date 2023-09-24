@@ -1,1 +1,1 @@
-If you change the way you look at things, the things you look at change.  | **by Wayne Dyer**
+The spirit is beyond destruction. No one can bring an end to spirit which is everlasting. | **by Bhagavad Gita**
