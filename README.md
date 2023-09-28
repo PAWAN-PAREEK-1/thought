@@ -1,1 +1,1 @@
-The spirit is beyond destruction. No one can bring an end to spirit which is everlasting. | **by Bhagavad Gita**
+Belief creates the actual fact. | **by William James**
