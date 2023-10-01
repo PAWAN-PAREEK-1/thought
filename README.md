@@ -1,1 +1,1 @@
-Belief creates the actual fact. | **by William James**
+We must have strong minds, ready to accept facts as they are. | **by Harry S. Truman**
