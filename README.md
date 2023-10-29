@@ -1,1 +1,1 @@
-Don't be pushed by your problems; be led by your dreams. | **by Unknown**
+Choose a job you love, and you will never have to work a day in your life.  | **by Confucius**
