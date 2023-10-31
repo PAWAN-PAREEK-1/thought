@@ -1,1 +1,1 @@
-In life you need either inspiration or desperation. | **by Tony Robbins**
+A good system shortens the road to the goal.  | **by Orison Swett Marden**
