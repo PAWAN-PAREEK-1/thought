@@ -1,1 +1,1 @@
-Change will not come if we wait for some other person, or if we wait for some other time. | **by Barack Obama**
+Every failure brings with it the seed of an equivalent success. | **by Napoleon Hill**
