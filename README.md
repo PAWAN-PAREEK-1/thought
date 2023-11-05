@@ -1,1 +1,1 @@
-Every failure brings with it the seed of an equivalent success. | **by Napoleon Hill**
+Someone who points out your flaws to you is not necessarily your enemy. Someone who speaks of your virtues is not necessarily your friend. | **by Zen Proverb**
