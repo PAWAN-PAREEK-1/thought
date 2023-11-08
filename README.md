@@ -1,1 +1,1 @@
-Problems remain as problems because people are busy defending them rather than finding solutions. | **by Celestine Chua**
+Be truthful about your emotions, and use your mind and emotions in your favor, not against yourself. | **by Robert Kiyosaki**
