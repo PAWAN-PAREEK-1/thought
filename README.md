@@ -1,1 +1,1 @@
-Be truthful about your emotions, and use your mind and emotions in your favor, not against yourself. | **by Robert Kiyosaki**
+Sometimes letting things go is an act of far greater power than defending or hanging on. | **by Eckhart Tolle**
