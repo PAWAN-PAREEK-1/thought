@@ -1,1 +1,1 @@
-Sometimes letting things go is an act of far greater power than defending or hanging on. | **by Eckhart Tolle**
+To a mind that is still, the entire universe surrenders. | **by Zhuangzi**
