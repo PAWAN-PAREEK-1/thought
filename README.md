@@ -1,1 +1,1 @@
-To a mind that is still, the entire universe surrenders. | **by Zhuangzi**
+Life has more imagination than we carry in our dreams. | **by Christopher Columbus**
