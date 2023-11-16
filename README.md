@@ -1,1 +1,1 @@
-When the fish is caught we pay no more attention to the trap. | **by Huang Po**
+A good system shortens the road to the goal.  | **by Orison Swett Marden**
