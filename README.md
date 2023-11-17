@@ -1,1 +1,1 @@
-A good system shortens the road to the goal.  | **by Orison Swett Marden**
+Motivation is what gets you started. Habit is what keeps you going. | **by Jim Rohn**
