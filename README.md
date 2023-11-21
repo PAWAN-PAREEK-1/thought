@@ -1,1 +1,1 @@
-Be polite to all, but intimate with few. | **by Thomas Jefferson**
+You can't go forward and backwards at the same time. | **by Steve Harvey**
