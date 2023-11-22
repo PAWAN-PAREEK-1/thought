@@ -1,1 +1,1 @@
-You can't go forward and backwards at the same time. | **by Steve Harvey**
+In order for you to be the BEST you can be for others, first you must be BEST for yourself. | **by Jeffrey Gitomer**
