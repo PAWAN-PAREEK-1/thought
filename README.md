@@ -1,1 +1,1 @@
-In order for you to be the BEST you can be for others, first you must be BEST for yourself. | **by Jeffrey Gitomer**
+Nothing gives one person so much advantage over another as to remain always cool and unruffled under all circumstances. | **by Thomas Jefferson**
