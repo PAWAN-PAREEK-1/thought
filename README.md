@@ -1,1 +1,1 @@
-Your only obligation in any lifetime is to be true to yourself. | **by Richard Bach**
+Believe and you're halfway there. | **by Harry S. Truman**
