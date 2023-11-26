@@ -1,1 +1,1 @@
-Believe and you're halfway there. | **by Harry S. Truman**
+The person who cannot control his words shows that he cannot control himself. | **by Robert Greene**
