@@ -1,1 +1,1 @@
-A liar knows that he is a liar, but one who speaks mere portions of truth in order to deceive is a craftsman of destruction. | **by Criss Jami**
+I would rather die on my feet than live on my knees. | **by Euripides**
