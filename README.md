@@ -1,1 +1,1 @@
-I would rather die on my feet than live on my knees. | **by Euripides**
+If what you're doing is not your passion, you have nothing to lose. | **by Celestine Chua**
