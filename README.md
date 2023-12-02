@@ -1,1 +1,1 @@
-If what you're doing is not your passion, you have nothing to lose. | **by Celestine Chua**
+Everyone you meet is fighting a battle you know nothing about. Be kind. Always. | **by Robin Williams**
