@@ -1,1 +1,1 @@
-Everyone you meet is fighting a battle you know nothing about. Be kind. Always. | **by Robin Williams**
+Life is a traveling to the edge of knowledge, then a leap taken. | **by D. H. Lawrence**
