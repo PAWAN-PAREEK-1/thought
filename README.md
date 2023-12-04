@@ -1,1 +1,1 @@
-Life is a traveling to the edge of knowledge, then a leap taken. | **by D. H. Lawrence**
+Live simply, expect little, give much. | **by Norman Vincent Peale**
