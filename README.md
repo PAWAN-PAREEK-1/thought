@@ -1,1 +1,1 @@
-You have to make time, even for something as universal as staring at the stars. | **by W.P. Kinsella**
+Difficult and meaningful will always bring more satisfaction than easy and meaningless. | **by Maxime Lagace**
