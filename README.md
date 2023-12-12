@@ -1,1 +1,1 @@
-Difficult and meaningful will always bring more satisfaction than easy and meaningless. | **by Maxime Lagace**
+When you know what you want, and want it bad enough, you will find a way to get it. | **by Jim Rohn**
