@@ -1,1 +1,1 @@
-Fear can hold you prisoner. Hope can set you free. | **by Stephen King**
+It's your road, and yours alone, others may walk it with you, but no one can walk it for you. | **by Rumi**
