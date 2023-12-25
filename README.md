@@ -1,1 +1,1 @@
-It's your road, and yours alone, others may walk it with you, but no one can walk it for you. | **by Rumi**
+We will outstretch the hand if you unclench your fist. | **by Barack Obama**
