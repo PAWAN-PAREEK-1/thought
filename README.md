@@ -1,1 +1,1 @@
-We will outstretch the hand if you unclench your fist. | **by Barack Obama**
+Develop success from failures. Discouragement and failure are two of the surest stepping stones to success. | **by Dale Carnegie**
