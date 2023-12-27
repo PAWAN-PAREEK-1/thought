@@ -1,1 +1,1 @@
-Develop success from failures. Discouragement and failure are two of the surest stepping stones to success. | **by Dale Carnegie**
+The busy man is never wise and the wise man is never busy. | **by Lin Yutang**
