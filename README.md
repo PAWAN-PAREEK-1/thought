@@ -1,1 +1,1 @@
-The busy man is never wise and the wise man is never busy. | **by Lin Yutang**
+Coming together is a beginning, staying together is progress, and working together is success.  | **by Henry Ford**
