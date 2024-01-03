@@ -1,1 +1,1 @@
-Coming together is a beginning, staying together is progress, and working together is success.  | **by Henry Ford**
+Happiness is the spiritual experience of living every minute with love, grace and gratitude. | **by Denis Waitley**
