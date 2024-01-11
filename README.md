@@ -1,1 +1,1 @@
-People who bite the hand that feeds them usually lick the boot that kicks them. | **by Eric Hoffer**
+There exists only the present instant; a Now which always and without end is itself new. | **by Meister Eckhart**
