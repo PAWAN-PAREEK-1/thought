@@ -1,1 +1,1 @@
-There exists only the present instant; a Now which always and without end is itself new. | **by Meister Eckhart**
+If you want work well done, select a busy man; the other kind has no time. | **by Elbert Hubbard**
