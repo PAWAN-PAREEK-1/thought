@@ -1,1 +1,1 @@
-Getting lost along your path is a part of finding the path you are meant to be on. | **by Robin Sharma**
+Show me a hero, and I'll write you a tragedy. | **by F. Scott Fitzgerald**
